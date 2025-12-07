@@ -3,9 +3,7 @@ Create By ifeng<br>
 Web Site: https://www.hicairo.com <br>
 Telegram: https://t.me/HiaiFeng <br>
 
-# متین بهم پیام بده بی زحمت ارتباط رو بیرون اینجا داشته باشیم 09373851039 seif
 ## Project info
-#  09373851039 seif
 ## Project info
 
 # 简介：
