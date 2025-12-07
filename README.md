@@ -3,9 +3,9 @@ Create By ifeng<br>
 Web Site: https://www.hicairo.com <br>
 Telegram: https://t.me/HiaiFeng <br>
 
-# baray ertebat loftan pm bedin 09373851039 seif
+# متین بهم پیام بده بی زحمت ارتباط رو بیرون اینجا داشته باشیم 09373851039 seif
 ## Project info
-# baray ertebat loftan pm bedin 09373851039 seif
+#  09373851039 seif
 ## Project info
 
 # 简介：
